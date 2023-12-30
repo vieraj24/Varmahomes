@@ -1,0 +1,1 @@
+Varma Homes has firmly established itself as one of the most trusted builders in Kerala. Starting with residential projects in Kochi, They offer one of the most number of project options among all builders in Kochi. Extensive range of flats for sale, setting us apart from other builders in kochi.
